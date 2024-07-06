@@ -1,4 +1,4 @@
-# Daria Polushkina
+# Daria Yatsko
 ## ***CONTACT***
 * My phone number: +375333476084
 * My Email: dariayatsko@mail.ru
